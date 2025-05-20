@@ -3,5 +3,5 @@ Max_Pinguin ∘ eins_Pinguin
 
 ⤷ Opsucht: Emerald
 ⤷ Trust: https://rb.gy/j242gc
-⤷ Anatidaephobia – die Angst, von einer Ente beobachtet zu werden.
+⤷ Anatidaephobia
 
